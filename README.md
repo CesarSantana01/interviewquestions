@@ -1,0 +1,1 @@
+A place for people to brush up on their common interview knowledge. Everything here you should already know but maybe push it to the back of your head. List is in no particular order. Enjoy!
